@@ -1,0 +1,2 @@
+# Deluxzone-
+Server bedrock
